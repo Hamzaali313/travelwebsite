@@ -1,4 +1,4 @@
-# a place where or receptacle in which things are or may be stored.
+# HAMZA Ali
 "a deep repository for nuclear waste"
 a place where something, especially a natural resource, is found in significant quantities.
 "accessible repositories of water"
