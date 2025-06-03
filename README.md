@@ -1,4 +1,4 @@
-# HAMZA Ali
+# HAMZA AlI
 "a deep repository for nuclear waste"
 a place where something, especially a natural resource, is found in significant quantities.
 "accessible repositories of water"
